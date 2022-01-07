@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @saleka01, student at University of Szeged. Looking for New oppurtunity as a trainee.
